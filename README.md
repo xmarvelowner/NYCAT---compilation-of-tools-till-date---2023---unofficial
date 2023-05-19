@@ -18,8 +18,7 @@ All credit to NYAN-x-CAT
 DOWNLOAD from below links 
 
 
-https://anonfiles.com/i6Nbjcs3zf/nycat_exe
-https://we.tl/t-4LE90ON7VI - mirror
+https://anonfiles.com/12n6k4s5z0/nycat_exe
 
 Important note:-
 more information @xmarvelowner on telegram.
